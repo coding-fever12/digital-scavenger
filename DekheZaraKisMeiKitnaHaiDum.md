@@ -1,5 +1,5 @@
 ans to riddle 3 :
-https://forms.gle/42oMLJwiQBXGQQxP6
+https://forms.gle/ATEnnSga8GZ8xaAc7
 .
 .
 .
