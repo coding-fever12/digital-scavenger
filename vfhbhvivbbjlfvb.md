@@ -1,4 +1,4 @@
-answer for the riddle 4: https://forms.gle/u899k6nSQvU56pR39
+answer for the riddle 4: https://forms.gle/ngmy5PbLq43eNWty5
 .
 .
 .
