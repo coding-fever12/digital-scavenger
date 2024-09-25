@@ -1,2 +1,2 @@
-I am a creature of the night, with eyes that see in the dark.
-My presence is a warning, a sign of a mark. Who am I?
+In the shadows, I take flight, with eyes that pierce the night.
+A symbol of a darkened sight, in Wednesday’s world, I’m a familiar sight. Who am I?
