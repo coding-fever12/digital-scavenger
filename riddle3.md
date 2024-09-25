@@ -1,2 +1,2 @@
-In the shadows I dwell, with a mind sharp as a blade. 
-My companion is dark, with feathers that never fade. Who am I?
+I am a creature of the night, with eyes that see in the dark.
+My presence is a warning, a sign of a mark. Who am I?
