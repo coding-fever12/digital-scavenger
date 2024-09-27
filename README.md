@@ -28,3 +28,5 @@
 
 ### 7) Remember The Theme
 ### 8) The maximum number of tabs should be 2, no one is allowed to open tab and search teams are alloted 
+
+### 9) solve it sequence-WISE
