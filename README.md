@@ -25,3 +25,7 @@
 ### 6) Be Smart:
 - Use logic and reasoning to solve the riddles.
 - Collaborate with others if needed to brainstorm solutions.
+
+### 7) Remember The Theme:
+
+
