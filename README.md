@@ -26,6 +26,5 @@
 - Use logic and reasoning to solve the riddles.
 - Collaborate with others if needed to brainstorm solutions.
 
-### 7) Remember The Theme:
-
-
+### 7) Remember The Theme
+### 8) The maximum number of tabs should be 2, no one is allowed to open tab and search teams are alloted 
